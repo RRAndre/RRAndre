@@ -1,4 +1,4 @@
-### <h2 align="center"> ✌Let me learn and give me connection and I'll be happy 👌</h2>
+### <h2 align="center"> ✌Let me learn and do something meaningful and I'll be happy 👌</h2>
 <br>
 
 
